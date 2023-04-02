@@ -1,2 +1,0 @@
-# challengensportifoliolazaro
-challenges
